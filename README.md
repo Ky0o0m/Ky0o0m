@@ -1,5 +1,3 @@
-## Hi there 👋
-
 # Hello. I'm Ky0m. Nice to meet you.  
   
 
